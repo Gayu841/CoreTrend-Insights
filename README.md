@@ -1,0 +1,1 @@
+# CoreTrend-Insights
